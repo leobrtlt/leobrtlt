@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working for LDLC<br>👯 I’m looking to collaborate on a good project<br>💬 Ask me about what you want<br>⚡ Fun fact: Love creating project
+🔭 I’m currently working for ??? (Hire me !)<br>👯 I’m looking to collaborate on a good project<br>💬 Ask me about what you want<br>⚡ Fun fact: Love creating project
 
 ## ⚡ Website: https://leoberteloot.fr
 
